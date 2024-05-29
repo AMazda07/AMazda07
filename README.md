@@ -5,6 +5,7 @@
 - 💞️ I’m looking to collaborate on reaching to a true AGI.
 - 📫 U can reach me on Instagram,Whatsapp,Telegram,Botim,Discord,Wechat with @amazda07  and best of it with email: mazda077@yahoo.com .
 - 😄 Pronouns: Mazda
+- - A very important qoute--->"Lady Luck favors the one who tries"--
 
 <!---
 AMazda07/AMazda07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
